@@ -1,1 +1,0 @@
-# DWS-Osman-k-Ond-ej
